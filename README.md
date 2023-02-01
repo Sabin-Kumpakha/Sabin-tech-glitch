@@ -1,2 +1,2 @@
 # Introduction
-Hello ! I am Sabin Kumpakha from Bhaktapur, Nepal.
+Hello!! I am Sabin Kumpakha from Bhaktapur, Nepal.
